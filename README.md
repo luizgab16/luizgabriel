@@ -8,3 +8,5 @@ Meu nome é Luiz Gabriel
 Você pode entrar em contato comigo 📫
 
 luizgabrielgmatiuzzo@gmail.com
+
+![](https://tenor.com/b0xSa8wYtkx.gif)
